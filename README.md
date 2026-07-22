@@ -1,0 +1,2 @@
+# privacy_plolicy_slice
+privacy_policy
