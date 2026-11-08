@@ -167,9 +167,9 @@ If you have any questions or concerns regarding this Privacy Policy, please cont
 
 Game: Slice & Dice
 
-Developer: UJ Global Tech OPC Private Limited
+Developer: Sultan Khan
 
-Email: info@ujglobal.tech
+Email: khansultan1@gmail.com
 
 Compliance
 
